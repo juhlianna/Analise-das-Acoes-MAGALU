@@ -1,0 +1,1 @@
+# An-lise-das-A-es-MAGALU
